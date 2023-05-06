@@ -11,7 +11,7 @@
  
  <br>
  
-  ### Aprendendo cada ddia um pouco mais !😃
+  ### Aprendendo cada dia um pouco mais !😃
  
 <div> 
  
